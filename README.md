@@ -8,6 +8,3 @@
 - www.linkedin.com/in/madiha-luqman-aish-
 I love travelling, cooking and watching documentaries.
 ![cartoon-sun-icon-with-facial-expression-free-png](https://github.com/MadihaLuqmanAish/MadihaLuqmanAish/assets/165335545/cf5c8851-810f-4d93-a67e-5924bc64cdaa)
-
-
-  
